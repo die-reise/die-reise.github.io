@@ -1,0 +1,1 @@
+Unter dem Stein findet ihr den ersten Teil der Karte.

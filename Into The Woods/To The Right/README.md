@@ -1,0 +1,1 @@
+Ihr habt den rechten Weg gewählt. Soll es nun in den Dickicht oder entlang des Bachs?

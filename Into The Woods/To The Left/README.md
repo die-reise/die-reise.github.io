@@ -1,0 +1,1 @@
+Ihr steht vor einer dunklen Höhle. Wagt ihr es hinein?
