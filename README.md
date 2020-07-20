@@ -1,1 +1,1 @@
-Vielleicht noch ein bisschen weiter in die Vergangenheit.
+Eure Suche bringt euch nicht nur an gefährliche Orte sondern auch durch die Zeit.
